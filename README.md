@@ -10,3 +10,5 @@ and another, with cool cursor effects
 u get the point
 
 anyways i dont care u dont have to credit me this is free for use, 3+ templates for u skids out there
+
+no im not putting ip grabbers because im not stupid like that.
